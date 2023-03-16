@@ -1,4 +1,4 @@
-## [Hidden Moss](1) & [Rug Pull Games](2)
+## [Hidden Moss][1] & [Rug Pull Games][2]
 
 Welcome to **Hidden Moss**, a game studio based in Chicago and Shanghai. Our team is passionate about creating engaging and immersive gaming experiences that challenge, entertain, and inspire players.
 
